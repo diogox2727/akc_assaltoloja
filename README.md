@@ -7,5 +7,5 @@ Drag and drop in your resource
 
 Support:
 if you need support contact me on Discord: 
-『aka castro』#0918
+akacastro#0069
 
